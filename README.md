@@ -1,1 +1,2 @@
 # repozad3
+Jak to jest być skrybą??? Dobrze???
